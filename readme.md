@@ -1,2 +1,0 @@
-
-yolda geliyor
